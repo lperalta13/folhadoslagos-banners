@@ -1,2 +1,0 @@
-# folhadoslagos-banners
-# folhadoslagos-banners
